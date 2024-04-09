@@ -1,0 +1,1 @@
+# kazuhaid0.github.io
